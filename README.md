@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @docentury a programer
-- 👀 I’m interested in studing programing may be like you! :) 
+- 👀 I’m interested in studing programing like you! :) 
 - 🌱 I’m currently helping people to learn coding by giving challenges! #100daysofcode #30daysofcode & more!!!!!!
 -
 - 📫 How to reach us? you reach us in instagram or twitter! @docenturyofficial 
